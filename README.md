@@ -1,2 +1,2 @@
 # Education.fun
-Fun
+SUPER fun games to play
